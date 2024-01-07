@@ -1,0 +1,1 @@
+# Modern-Bookshop-Management-System-with-Database-login-and-registration-only-for-copyright-purposes-
